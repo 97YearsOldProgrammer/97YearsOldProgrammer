@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gong Chen. A junior student from UCDavis
+- 👋 Hi, I’m Gong Chen. A junior undergraduate student from UCDavis
 - 
 - 👀 I’m interested in cooking, video games, work out, jogging, and hanging out with friends.
 - 
