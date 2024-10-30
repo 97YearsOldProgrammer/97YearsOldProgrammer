@@ -7,8 +7,8 @@
 - 💞️ I’m looking to collaborate on any research internship opportunities in bioinformatics at UC Davis.
 - 
 - 📫 How to reach me
-  - ** Phone **: 530-760-5865  
-  - ** Email **: dsbchen@ucdavis.edu
+  - ** Phone **:  530-760-5865  
+  - ** Email **:  dsbchen@ucdavis.edu
   
 - 😄 Pronouns: He/Him
 - 
